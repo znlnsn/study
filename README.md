@@ -36,29 +36,7 @@ CNC
 不要写品质
 无尘服xxxl
 鞋子最少44
-床上绑上绳子可以挂衣服
-***
-
-
-
-永久域名发布页:https://103.186.186.186/
-
-备用官网：
-
-http://j01.tbcache.us
-
-http://j02.tbcache.us
-
-http://j03.tbcache.us
-
-http://j04.tbcache.us
-
-http://j05.tbcache.us (最新)  
-
-
-
-znlnsn@outlook.com
-12345678
+床上绑上绳子可以挂
 
 大火煮开，小火熬，记得定闹钟
 
